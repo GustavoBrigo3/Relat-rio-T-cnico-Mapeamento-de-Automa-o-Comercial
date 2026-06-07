@@ -1,1 +1,0 @@
-# Relat-rio-T-cnico-Mapeamento-de-Automa-o-Comercial
